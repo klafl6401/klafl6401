@@ -1,4 +1,4 @@
-Sex god / millionaire here.
+Sex god / millionaire here. Did I mention that MT is the best timezone?
 # Statistics
 <div align="center">
     <img src="https://raw.githubusercontent.com/klafl6401/klafl6401/master/generated/overview.svg#gh-dark-mode-only">
